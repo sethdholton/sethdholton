@@ -1,8 +1,0 @@
-- me seth
-- me make things sometimes
-- i wanga code
-- tryna use github to work on code w my partner
-- email sethdholton@utexas.edu
-- snapchat @meatbugz
-- spotify profile @seg
-- i'm bigger than you

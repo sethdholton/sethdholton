@@ -1,0 +1,5 @@
+- my name is seth
+- i make things sometimes
+- i like coding a lot
+- created a github account to share code with my partner
+- email sethdholton@utexas.edu
